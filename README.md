@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Long, my full name is Nguyễn Ngọc Hùng Long
+- 👀 I’m interested in LAMP stack, Nodejs, Reactjs, React Native, Wordpress and AWS
+- 🌱 I’m currently learning Reactjs and Nodejs
+- 💞️ I’m looking to new job oppotunities
+- 📫 How to reach me: email me at ng2hunglong@gmail.com or linkedin: https://www.linkedin.com/in/long-nguy%E1%BB%85n-998743199/https://www.linkedin.com/in/long-nguy%E1%BB%85n-998743199/https://www.linkedin.com/in/long-nguy%E1%BB%85n-998743199/https://www.linkedin.com/in/long-nguy%E1%BB%85n-998743199/https://www.linkedin.com/in/long-nguy%E1%BB%85n-998743199/https://www.linkedin.com/in/long-nguy%E1%BB%85n-998743199/https://www.linkedin.com/in/long-nguy%E1%BB%85n-998743199/https://www.linkedin.com/in/long-nguy%E1%BB%85n-998743199/https://www.linkedin.com/in/long-nguy%E1%BB%85n-998743199/https://www.linkedin.com/in/long-nguy%E1%BB%85n-998743199/https://www.linkedin.com/in/long-nguy%E1%BB%85n-998743199/
